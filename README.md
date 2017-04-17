@@ -1,4 +1,4 @@
-# [вℓα¢к ™](https://telegram.me/Mytelegramappnew)
+# [вℓα¢к ™](https://telegram.me/GODILOVEYOUME2)
 
 **An advanced and powerful administration bot based on NEW TG-CLI
 
